@@ -14,4 +14,4 @@ Here are some ideas to get you started:
  815 797 4702or at uvlsystem@outlook.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: make a respectable offer
---> Thank You Sincerely James Edward Repsel
+--> Thank You James Edward Repsel
